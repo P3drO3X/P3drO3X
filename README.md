@@ -3,5 +3,4 @@
 - 💬 Ask me about     :🏋️,⚽,self-development, and programming 
 - 📫 How to reach me  : pedrogreis99@gmail.com
 - "Motivation is not real, DISCIPLINE IS REAL" - TOP G
-  ![Uploading AndrewTateTopGGIF.gif…]()
-
+![AndrewTateGIF](https://github.com/P3drO3X/P3drO3X/assets/60151416/fb6b7a8d-877e-475a-a734-aa0dd6e9d86b)
